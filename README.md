@@ -1,2 +1,0 @@
-# Prison-Life
-Powerful cheat.
